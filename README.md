@@ -29,4 +29,4 @@ how to install this tools :
 7 : BOOOOOOMM 
 
 ============
-http://facebook.com/ninja.hackerz.kurdish/
+
